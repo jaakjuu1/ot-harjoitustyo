@@ -23,3 +23,7 @@ Hilkka noita uskoo että kaikki johon hänen taikansa vain voi osua on hänen om
 
 
 ## Loppu tulee aina 
+
+
+[gitlog.txt](https://github.com/jaakjuu1/ot-harjoitustyo/blob/master/laskarit/viikko1/gitlog.txt)
+[komentorivi.txt](https://github.com/jaakjuu1/ot-harjoitustyo/blob/master/laskarit/komentorivi.txt)
