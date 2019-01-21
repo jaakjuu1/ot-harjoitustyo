@@ -21,6 +21,11 @@ Hilkka noita uskoo että kaikki johon hänen taikansa vain voi osua on hänen om
 
 *Joka päivä jotain oli keksittävä tasapainottaakseen energiat.*
 
+## Eräs aamu valo astui esiin ja muutti kaiken
+
+> Katsokaa ja pyrkikää ottamaan kaikki irti mitä ikinä vain pystytte. 
+
+> Luokaa vaihtoehtoinen totuus aina uudelleen ja uudelleen. Kyllä sieltä aina jokin valhe tulee!
 
 ## Loppu tulee aina 
 
